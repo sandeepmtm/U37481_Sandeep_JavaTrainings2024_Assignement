@@ -1,0 +1,2 @@
+# U37481_Sandeep_JavaTrainings2024_Assignement
+Assignments submission
